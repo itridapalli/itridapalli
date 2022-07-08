@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Isabele Tridapalli!
+- 👀 I’m interested in recruiting the best professionals to join big projects with global clients at Ytech (a startup from Lisbon, Portugal).
+- 🌱 I’m currently learning how to improve the process of recruitment, bringing the best experience for the candidate and for the company.
+- 💞️ I’m looking to collaborate in building strong teams for big achievements!
+- 📫 Fell free to reach me through my e-mail: itridapalli@ytech.io
